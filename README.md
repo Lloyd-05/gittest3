@@ -1,3 +1,16 @@
-# gittest3
+# Sky Group
 
-please note this is a test
+jsfdljsfdklsfkldsjfdlajkf;klajfdds
+
+
+## Week 1
+
+fjsdjsklsljklskjfwjrjfjfjiaw
+
+## Week 2
+
+fkk;lkslksd;ljsfdkjsfdf
+
+### Homework
+
+kkffjfjlfsjdlkfjklfjkldfjsfd
